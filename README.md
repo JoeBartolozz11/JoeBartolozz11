@@ -6,6 +6,8 @@
 ## BRITANNIA!!
 
 Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,READ about WHAT he has done and taken away of.Yall cant even read BASIC history like how WW1 started too im genuinely crying/srs
+
+AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
 ##
 DOCUMENTS AND A PIECE OF WHAT NAPOLEON HAD DONE (BAD) :
 
