@@ -10,6 +10,7 @@ Napoleon number 1 HATER . napoleon glazers dni,yall dont gotta larp bro istg,REA
 AVOID friending me IF you ghosted me after a day of talk as i am someone who likes to talk alot despite being anti social.
 
 W2i is needed because i offtab alot.
+do not be afraid to approach or to c+h me while im with my Dad,he is complately friendly and fine with others.
 ##
 DOCUMENTS AND A PIECE OF WHAT NAPOLEON HAD DONE (BAD) :
 
